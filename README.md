@@ -1,2 +1,2 @@
 # Study-Dairy
-Records my daily studying notes 
+Records my daily studying notes  
